@@ -3,8 +3,8 @@
 
 ## Education 
 
-[S.D. Adarsh Public School ,Karnal] (https://sdadarsh.edu.in/)
+[S.D. Adarsh Public School ,Karnal](https://sdadarsh.edu.in/)
 
-[S.D. Model Public School , Karnal ] (https://sdmodelkarnal.com/)
+[S.D. Model Public School , Karnal ](https://sdmodelkarnal.com/)
 
 [Good Sheferd International School ](https://gsis.ac.in/)
